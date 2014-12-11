@@ -1,4 +1,4 @@
-Read me! Kdo si to nepřečte, ať čelí následkům!
+Read me!!! Kdo si to nepřečte, ať čelí následkům!
 
 Původní (Original):
 
